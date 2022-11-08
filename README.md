@@ -1,1 +1,3 @@
-If ur reading this please do not sell these things from my profile because they're just an random things generator
+| To Retards that are going to sell my random af codes:
+
+if ur going to sell any of my code that's only generating random patterns, you are big retard because its fake and it isnt even working.
